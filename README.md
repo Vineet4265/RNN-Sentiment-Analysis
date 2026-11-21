@@ -51,6 +51,4 @@ GitHub: https://github.com/Vineet4265
 
 LinkedIn: https://www.linkedin.com/in/vineet-kumar-b08a90239/
 
-GitHub: https://github.com/Vineet4265
 
-LinkedIn: https://www.linkedin.com/in/vineet-kumar-b08a90239/
